@@ -6,3 +6,8 @@
 🦧🦧🦧🦧🦧-Meu sonho é ser feliz de verdade
 🦧🦧🦧🦧🦧🦧-contato > (00001109663602sp@aluno.educacao.sp.gov.br ou 00001109663602sp@al.educacao.sp.gov.br)
 🦧🦧🦧🦧🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-🦧🦧🦧🦧-
+
+
+-_![
+](https://media.tenor.com/lvQ5UhzZlRsAAAAM/will-smith.gif)
+   
